@@ -1,5 +1,5 @@
 # Johnny Cash - Folsom Prison Blues
-https://youtu.be/RbLJy3I-DGg?si=lINni2VBPAO3q2WX
+[youtube lesson](https://youtu.be/RbLJy3I-DGg?si=lINni2VBPAO3q2WX)
 
 ## Chords
 E 8 bars\
